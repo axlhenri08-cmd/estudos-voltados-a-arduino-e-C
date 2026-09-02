@@ -1,0 +1,1 @@
+# trabalho-galp-o-inteligente
