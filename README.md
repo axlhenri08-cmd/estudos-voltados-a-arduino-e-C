@@ -1,1 +1,1 @@
-# trabalho-galp-o-inteligente
+# trabalho-galpão-inteligente
